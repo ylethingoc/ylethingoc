@@ -4,7 +4,7 @@
 
 🍉 I’m currently learning everything
 
-😻 I’m glad having a talk with everyone
+😻 I’m glad to have a talk with everyone
 
 🦜 Please simply ping me via Skype by id live:ngocyenle08
 
