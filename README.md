@@ -2,7 +2,7 @@
 
 💣 Hi there, this is @yen, a technology enthusiast, animal lover, coffeer and music fan
 
-🎸 I’m currently learning everything
+🎸 Currently I’m learning everything
 
 🍻 I’m glad to have a talk with you
 
