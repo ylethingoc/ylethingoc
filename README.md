@@ -1,6 +1,6 @@
 ### whoami
 
-💣 Hi there, I’m @yen, a technology enthusiast, animal lover, coffeer and music fan
+💣 Hi there, this is @yen, a technology enthusiast, animal lover, coffeer and music fan
 
 🎸 I’m currently learning everything
 
